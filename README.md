@@ -3,7 +3,18 @@ I want to make the actually important bits in the group chat easily accessible t
 
 ## Rookie Camp
 
-Rookie Camp starts tomorrow! Make sure to drink water tonight so you're hydrated. For rookie camp, make sure to bring a lunch, water bottle, your music and instrument, and some sunscreen. I will also highly recommend some bug spray (where we tend to sit, the bugs will eat you alive), a portable fan if you have one, and some deodorant. If I'm forgetting to list something that we probably should bring, please let me know! Finally, I look forward to seeing you all!
+Rookie Camp starts tomorrow! Make sure to drink water tonight so you're hydrated. For rookie camp, make sure to bring:
+- a lunch
+- a water bottle
+- your music and instrument
+- some sunscreen
+
+While not required, I recommend you bring: 
+- some bug spray (where we tend to sit, the bugs will eat you alive)
+- a portable fan (if you have one)
+- some deodorant.
+
+If I'm forgetting to list something that we probably should bring, please let me know! Finally, I look forward to seeing you all!
 
 ## Section Day
 
@@ -11,4 +22,8 @@ The Friday on the first week of band camp is Section Day. Essentially, every sec
 
 ## Section Hoodies
 
-Most sections will make hoodies based on their section reflecting the theme of the show. While not mandatory, they're fun to have (I wore mine nearly every day last year) and they're very useful for home football games late in the season (when it's chilly in the evenings). Last year we made ours REALLY late (mea culpa, mea culpa) and I'm going to try to be a little quicker about making them this year. If anyone is an artist and wants to try making a design for ours, let me know!
+Most sections will make hoodies based on their section reflecting the theme of the show. While not mandatory, they're fun to have (I wore mine nearly every day last year) and they're very useful for home football games late in the season (when it's chilly in the evenings). Last year we made ours REALLY late (mea culpa, mea culpa) and I'm going to try to be a little quicker about making them this year. If anyone is an artist and wants to try making a design for ours, let me know! (Makyla is working on a design, which is AWESOME. If anyone else wants to make a design too, go ahead!)
+
+## Announcement Spamming
+
+I apologize for how much I've been announcing in group chats! The quantity of big chunks of information will greatly decrease as we get further into the marching season. In the meantime, please try to stay patient, and let me know if there is an information overload.
