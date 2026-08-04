@@ -1,29 +1,43 @@
 # Trombitone Announcements
 I want to make the very important bits in the group chat easily accessible to those who want to see them. Hence, we have this website!
 
-## Rookie Camp
+## Band Camp
 
-Rookie Camp starts tomorrow! Make sure to drink water tonight so you're hydrated. For rookie camp, make sure to bring:
+Make sure to bring:
 - a lunch
 - a water bottle
 - your music and instrument
 - some sunscreen
+- **NEW** scissors
 
 While not required, I recommend you bring: 
 - some bug spray (where we tend to sit, the bugs will eat you alive)
 - a portable fan (if you have one)
-- some deodorant.
-
-If I'm forgetting to list something that we probably should bring, please let me know! Finally, I look forward to seeing you all!
+- some deodorant
+- hat and sunglasses
 
 ## Section Day
 
-The Friday on the first week of band camp is Section Day. Essentially, every section chooses some theme to dress up as, and it's a competition between sections for who dresses up the best. Two years ago we did pajamas, and last year we did subway surfers. The sooner we decide on a theme the better, because that gives us more time to plan outfits. My proposal is that we dress up as Mr. Kirsch: khakis and red polo shirts. If anyone else has ideas, please share them!
+Please fill out the section day poll: https://forms.cloud.microsoft/r/NVSH6cgzQV . We need to hurry and decide what to dress up as (in case we do something that requires effort), so tomorrow morning I'm going to finalize the results!
 
-## Section Hoodies
+## Props and Sound
 
-Most sections will make hoodies based on their section reflecting the theme of the show. While not mandatory, they're fun to have (I wore mine nearly every day last year) and they're very useful for home football games late in the season (when it's chilly in the evenings). Last year we made ours REALLY late (mea culpa, mea culpa) and I'm going to try to be a little quicker about making them this year. If anyone is an artist and wants to try making a design for ours, let me know! (Makyla is working on a design, which is AWESOME. If anyone else wants to make a design too, go ahead!)
+The band needs people for props! Honestly props is a lot of fun, I was on it sophomore year. It's really not a lot of extra work, it ends up being a few extra minutes after marching practice. If you're interested, I can give you Kevin's number and he should get you on the crew!
 
-## Announcement Spamming
+You can also join sound crew. Sound crew is Victor's thing
 
-I apologize for how much I've been announcing in group chats! The quantity of big chunks of information will greatly decrease as we get further into the marching season. In the meantime, please try to stay patient, and let me know if there is an information overload.
+## Drill Video
+
+I request that all our rookies to review the video that explained how to set drill! Setting drill will get much quicker if we can all understand what the UDB app is saying. Here's a link to the video: https://www.stridetv.com/programs/field-reading-101 . (Again, this is coming from upper leadership, not just me)
+
+> This is genuinely a massive help and I encourage anybody who feels like the don’t fully under understand how udb works to just give it a quick watch - Victor
+
+## Forms
+
+Final thing from upper leadership: please please please turn your forms in! All forms except the medical form can be turned in digitally. Links to the forms can be found here: https://www.graftonband.com/student/forms/
+
+## Things from Victor
+
+> thank you all for the hard work yall have been putting in I know it’s just day 1 but it can get very draining and it’s like that for all of us. The only thing we can do is keep pushing through and putting in the work and I know yall don’t know yet but the genuine payoff and feeling that you get when you see the final result is a feeling like no other.
+
+> the potential I see in this group and in all of the individuals is one that I haven’t come close to seeing and I feel really excited to see yall grow and put in the work. Cause I know that this genuinely has the potential to be a year like no other so far.
