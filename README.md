@@ -8,7 +8,7 @@ Make sure to bring:
 - a water bottle
 - your music and instrument
 - some sunscreen
-- **NEW** scissors
+- **NEW** - scissors
 
 While not required, I recommend you bring: 
 - some bug spray (where we tend to sit, the bugs will eat you alive)
